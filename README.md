@@ -2,8 +2,8 @@
 
 <img width="400" height="225" alt="19035" src="https://github.com/user-attachments/assets/614ded2e-1077-437e-8746-e413d95771cb" />
 
-  this github was made SPECIFICALLY for ponytown. it is still a work in progress so yeah
+   this github was made SPECIFICALLY for ponytown. it is still a work in progress so yeah
 
-  c+h freely (unless i have dni/dniuf in my name)
-    
+   c+h freely (unless i have dni/dniuf in my name)
+    ♡
 
