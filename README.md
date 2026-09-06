@@ -2,7 +2,7 @@
 
 <img width="698" height="357" alt="23892" src="https://github.com/user-attachments/assets/407fc857-b36d-466c-8c0d-2421ba1ae313" />
 
-                   this is still a WIP im lazy gomen
+               this a wip
 
 
    
