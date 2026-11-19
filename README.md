@@ -7,7 +7,7 @@
 
 <p align="center">
 <a href="https://foxhyeok.straw.page" target="_straw">sp</a></p> 　<p align="center">
-<a href="https://iostsorrows.atabook.org" target="_ata">ata</a></p> 　<p align="center">
+<a href="https://lostsorrows.atabook.org/" target="_ata">ata</a></p> 　<p align="center">
 <a href="https://donooootinteract.straw.page" target="_dni">dni</a></p>
 
 
